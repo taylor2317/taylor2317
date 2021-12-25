@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @taylor2317
+- 👀 I’m interested in website design
+- 🌱 I’m currently doing my GCSE's
+- 💞️ I’m looking to collaborate on anything :)
+- 📫 Socials: https://www.instagram.com/taylor.2317 - https://www.twitter.com/xtaylor2317x
